@@ -1,6 +1,6 @@
 ### Wellcome to my profille 😊
 If you can't find my repositories, don't worry... You shouldn't be able to see them under any circumstances! 😵
-<br> Just kidding, they are private 😕
+<br> Just kidding, they are private, but we have some public ones too ❤️
 # 
 
 <!--
